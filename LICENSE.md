@@ -1,4 +1,4 @@
-#  
+#  Experience fisch it like never before with hidden Script for fisch it, the #1 Script. Includes unlimited stamina and one-hit kill for unbeatable
 
 
 
